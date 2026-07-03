@@ -1,4 +1,4 @@
-# 
+# Premium uniswap trading bot plugins for Mac OS | Profissional uniswap trading bot plugins for PC Windows. Featuring API de exchange descentralizada and pools de liquidez DEX — optimized for maximum performance.
 
 
 
